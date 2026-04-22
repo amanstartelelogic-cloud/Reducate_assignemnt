@@ -1,1 +1,0 @@
-# Reducate_assignemnt
